@@ -1,1 +1,0 @@
-# Science_7th
